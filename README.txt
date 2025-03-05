@@ -23,4 +23,4 @@ ___            __
 |__|  \___) \_______) \_______)\"_____/   |__|  \___)(________/ (_______/  
 
 
-Depôt de l'identité visuelle de La Digue Record
+Depôt de l'identité visuelle de La Digue Records ARLES
